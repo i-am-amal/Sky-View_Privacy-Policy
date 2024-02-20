@@ -1,1 +1,0 @@
-# Sky-View_WeatherApp_Privacy-Policy
